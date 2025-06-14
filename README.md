@@ -43,8 +43,8 @@
 
 ### 📫 Connect with Me
 
-[![LinkedIn](https://www.linkedin.com/in/siddhi-nikam-963a78251/)  
-📧 siddhinikam258@gmail.com
+- 🔗 [LinkedIn](https://www.linkedin.com/in/siddhi-nikam-963a78251/)
+- 📧 [siddhinikam258@gmail.com](mailto:siddhinikam258@gmail.com)
 
 ---
 
